@@ -1,0 +1,1 @@
+# semiconfinamento-tip-g3x
